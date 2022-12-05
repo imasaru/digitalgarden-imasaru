@@ -8,7 +8,7 @@ Man, having a [WhiteHat](MIC/WhiteHat%20ICT/WhiteHat%20ICT.md) newsletter in thi
 ## Evening
 
 ## Afternoon  ⇒ Success!
-Day of deep work so far—yay!!
+A whole day of deep work so far—yay!!
 
 ### Uni Backroom DX, Late Paperwork
 Finally added `Break Time` section to my custom MIC work study Excel form. After already being adopted by some staff/admin, this latest addition should make it irresistible—yay!!
